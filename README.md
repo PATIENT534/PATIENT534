@@ -1,11 +1,11 @@
 
 <div align="center">
 
-<sub> i have to check. looks like  <sub><span> kids <span><sub> wandered into a danger zone again. <sub>
+<sub> i⠀have⠀to⠀check.⠀looks⠀like⠀kids⠀wandered⠀into a⠀danger⠀zone⠀again. <span>
 
 <img width="480" height="387" alt="IMG_0584" src="https://github.com/user-attachments/assets/752d87f3-9885-45a2-8972-4be896585f09" />
 
-<sub> the [bully](https://github.com/PATIENT535) :// <sub>
+<sub> the⠀[bully](https://github.com/PATIENT535)⠀⠀:// <sub>
 
 [ata](https://iceicebaby.atabook.org) . . strawp coming soon. . . [guns](https://guns.lol/kittykonsn)
 
