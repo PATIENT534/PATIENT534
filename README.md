@@ -3,7 +3,8 @@
 
 <sub> i⠀have⠀to⠀check.⠀looks⠀like⠀kids⠀wandered⠀into a⠀danger⠀zone⠀again. <span>
 
-![hi](https://file.garden/awagweSTIK0Os11c/IMG_0625.png)
+<img src="https://file.garden/awagweSTIK0Os11c/IMG_0625.png" width="447" alt="Description of image">
+
 
 <sub> the⠀[bully](https://github.com/PATIENT535)⠀⠀:// <sub>
 
