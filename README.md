@@ -8,7 +8,7 @@
 
 <sub> the⠀[bully](https://github.com/PATIENT535)⠀⠀:// <sub>
 
-[ata](https://iceicebaby.atabook.org) . . strawp coming soon. . . [guns](https://guns.lol/kittykonsn)
+[ata](https://iceicebaby.atabook.org) . . strawp coming soon. . . [guns](https://guns.lol/kittykonen)
 
 <!--
 **PATIENT534/PATIENT534** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
