@@ -1,12 +1,15 @@
 
 <div align="center">
 
-<sub> i⠀have⠀to⠀check.⠀looks⠀like⠀kids⠀wandered⠀into a⠀danger⠀zone⠀again. <span>
+<span> <sub> “⠀i⠀have⠀to⠀check.⠀looks⠀like⠀kids⠀wandered⠀into a⠀danger⠀zone⠀again.⠀”<span> <sub> 
+
 
 <img src="https://file.garden/awagweSTIK0Os11c/IMG_0625.png" width="447" alt="Description of image">
 
 
 <sub> the⠀[bully](https://github.com/PATIENT535)⠀⠀:// <sub>
+
+<sub> sorry⠀but⠀i⠀can⠀do⠀my⠀job⠀right,⠀fucker⠀!⠀and⠀no⠀worries.⠀i⠀guess <sub>
 
 [ata](https://iceicebaby.atabook.org) . . strawp coming soon. . . [guns](https://guns.lol/kittykonen)
 
